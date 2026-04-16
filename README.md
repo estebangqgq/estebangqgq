@@ -12,6 +12,6 @@ No hablo mucho, pero hago lo necesario.
 
 
 
-![gif](https://c.tenor.com/VjQlA22cG0IAAAAd/tenor.gif)
+![gif](https://media1.tenor.com/m/VjQlA22cG0IAAAAd/cute-puppy-aegi.gif)
 
 
