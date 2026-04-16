@@ -11,5 +11,5 @@ No hablo mucho, pero hago lo necesario.
 
 ---
 
-<img src="https://media.tenor.com/yszT9DwvXbUAAAAi/sigma-chad.gif" width="140">
+<img src="https://c.tenor.com/GmXFAPdBOjwAAAAd/tenor.gif" width="140">
 
