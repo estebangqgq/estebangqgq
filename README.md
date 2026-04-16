@@ -1,6 +1,6 @@
 # 👋 Esteban
 
-![gif]([https://media.tenor.com/qBnS1kSgbYHAAAAC/tenor.gif](https://media.tenor.com/v3nP9LGBdNEAAAAi/puppy-eyes.gif))
+![gif](https://media.giphy.com/media/coxQHKASG60HrHtvkt/giphy.gif)
 
 📍 Perú  
 
