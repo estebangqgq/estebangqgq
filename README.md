@@ -1,7 +1,5 @@
 # 👋 Esteban
 
-![perrito](https://media.tenor.com/qBnS1kSgbYHAAAAC/dog.gif)
-
 📍 Perú  
 
 No hablo mucho, pero hago lo necesario.  
@@ -9,4 +7,6 @@ No hablo mucho, pero hago lo necesario.
 ## ⚡
 - En mi propio camino  
 - Mejorando cada día  
-- Sin depender de nadie  
+- Sin depender de nadie
+
+![gif](https://media.giphy.com/media/coxQHKASG60HrHtvkt/giphy.gif)
