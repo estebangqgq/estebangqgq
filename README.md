@@ -1,6 +1,6 @@
 # 👋 Esteban
 
-![gif](https://media.giphy.com/media/coxQHKASG60HrHtvkt/giphy.gif)
+![perrito](https://media.tenor.com/qBnS1kSgbYHAAAAC/dog.gif)
 
 📍 Perú  
 
