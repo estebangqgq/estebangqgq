@@ -9,4 +9,9 @@ No hablo mucho, pero hago lo necesario.
 - Mejorando cada día  
 - Sin depender de nadie
 
+
+
+
 ![gif](https://media.giphy.com/media/coxQHKASG60HrHtvkt/giphy.gif)
+
+
