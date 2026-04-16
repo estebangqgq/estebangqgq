@@ -12,6 +12,6 @@ No hablo mucho, pero hago lo necesario.
 
 
 
-![gif](https://media.tenor.com/v3nP9LGBdNEAAAAi/puppy-eyes.gif)
+![gif](https://media.tenor.com/yszT9DwvXbUAAAAi/sigma-chad.gif)
 
 
